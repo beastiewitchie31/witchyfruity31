@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @beastiewitchie31
+- 👋 Hi, I’m Vika
 - 👀 I’m interested in memes
 - 🌱 I’m currently learning Python, C++, and being nice
 - 💞️ I’m looking to collaborate on anything/anyone who would risk their gems to collaborate lmao
